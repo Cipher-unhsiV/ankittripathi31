@@ -1,4 +1,4 @@
-![gif from nerdy.dev](https://github.com/ankittripathi31/ankittripathi31/blob/master/argyleink-sm2.gif?raw=true)
+![](https://github.com/ankittripathi31/ankittripathi31/blob/master/20201007_190937.gif?raw=true)
 
 <!--
 **ankittripathi31/ankittripathi31** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
